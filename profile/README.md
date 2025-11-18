@@ -1,4 +1,3 @@
-# Synaptix Research 🔬  
 *Unlocking Collective Intelligence through Distributed, Collaborative AI Systems*  
 🌐 [synaptixresearch.com](https://www.synaptixresearch.com/)
 
